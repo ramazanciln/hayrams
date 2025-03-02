@@ -1,2 +1,1 @@
-# hayrams
-Türkiye`nin En Güvenilir Adresi 2025 💫
+Buradan takip edebilirsiniz.
